@@ -5,3 +5,5 @@ Anggota :
   - Jarot Wiwoho
   - Deni Riyanto
   - Firdaus Abadi
+Youtube : https://youtu.be/iqgAMU1TYGU
+Website : https://covid.unsia-student.web.id
